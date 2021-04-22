@@ -1,1 +1,1 @@
-# priglositlniy
+# priglos
